@@ -1,16 +1,16 @@
 ---
 layout: default
-title: Welcome to My Food Blog
+title: Tallrikstankar
 ---
 
-## Latest Recipes
+# Välkommen till Tallrikstankar
 
-<ul>
-  {% for post in site.posts %}
-    <li>
-      <a href="{{ post.url }}">{{ post.title }}</a> - {{ post.date | date_to_string }}
-    </li>
-  {% endfor %}
-</ul>
+This is my food blog where I share my thoughts and recipes.
 
----
+### Today's Special
+![Delicious Dish](/assets/images/h.jpg)
+
+Here is some text about my favorite meal. It's simple, fresh, and easy to make!
+
+* **Prep time:** 10 mins
+* **Cook time:** 20 mins
