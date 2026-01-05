@@ -7,5 +7,4 @@ title: Tallrikstankar
 
 Här är min matblogg!!!
 
-### Today's Special
-![Delicious Dish](/assets/images/IMG_4468.HEIC)
+![Fika](/assets/images/IMG_4468.png)
