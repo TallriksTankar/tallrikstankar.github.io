@@ -7,4 +7,4 @@ title: Tallrikstankar
 
 Här är min matblogg!!!
 
-![Fika](/assets/images/IMG_4468.png)
+![Fika](/assets/images/fika.png)
