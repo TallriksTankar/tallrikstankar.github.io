@@ -1,1 +1,14 @@
-foo
+---
+---
+@import "{{ site.theme }}";
+
+// Change link colors here
+a {
+  color: #ffb6c1; // Light Pink
+  text-decoration: none;
+}
+
+a:hover {
+  color: #ffc0cb; // A slightly lighter pink on hover
+  text-underline-position: under;
+}
