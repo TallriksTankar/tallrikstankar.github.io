@@ -26,4 +26,4 @@ Enkelt var det också. Värm mjölk fingervarmt, ha i jäst, rör ner mjöl, kn�
 
 Fun fact: bröd var en gång i tiden så värdefullt att den kunde användas som valuta
 
-![franska](assets/images/källarfranska.png)
+![franska](assets/images/kallarfranska.png)
