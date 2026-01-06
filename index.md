@@ -26,6 +26,7 @@ Det är så kravlöst.
 Man får ha vad man vill på sin macka och den blir alltid god, inga regler WHAT SO EVER. Det är väl därför det känns så tryggt? 
 
 Hur som haver, som rubriken lyder bakade jag källarfranskar och hade på apelsinmarmelad. Något som uppskattades väldigt mycket av mig, men även min 24/7 hungriga pojkvän. Enkelt var det också. Koka upp mjölk, ha i jäst, rör ner mjöl, knåda till deg, jäsa, forma, jäsa och tjoff in i ugngen och voila!!!! Bröd.
-*Fun fact: bröd var en gång i tiden så värdefullt att den kunde användas som valuta
 
-(/assets/images/källarfranska.png)
+Fun fact: bröd var en gång i tiden så värdefullt att den kunde användas som valuta
+
+!(/assets/images/källarfranska.png)
