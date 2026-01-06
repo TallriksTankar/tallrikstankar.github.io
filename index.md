@@ -5,13 +5,11 @@ title: TallriksTankar
 
 # Välkommen!
 
-Tja hej salam. Här har vi en glad tjeja som står bakom den här matbloggen🥰
+Tja, hej salam.
 
-Jag är en självutnämnd hobbykock/bagare som tycker om att laga mat och baka hemma, främst med fokus på enkla recept som fungerar i vardagen. Inga krav på perfektion eller avancerade tekniker, här finns rum för misstag. 
+Bakom den här bloggen finns en 21-årig tjej som gillar mat i alla former. Att laga den, baka den och framförallt, att äta den. Förvänta er inget överdådigt för jag är inte en expert på matlagning eller bakning. Här kommer jag dela med mig av det jag lagar, bakar och äter, hemma eller ute. Min food diary helt enkelt! 
 
-Bloggen startade jag för att dela med mig av det jag lyckats trolla fram i köket, både mat och bakning. Förutom egen matlagning kommer jag ibland dela med mig av mat från restauranger och bagerier, samt rätter från andra länder som jag tyckte var gott. 
-
-Let's get cooking biatches!
+Häng mä bestos friendos!
 
 
 
