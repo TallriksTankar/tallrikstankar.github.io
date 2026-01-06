@@ -20,7 +20,7 @@
 
 title: Tallrikstankar
 description: >- # this means to ignore newlines until "baseurl:"
-  Min matblogg!
+  
 url: tallrikstankar.github.io # the base hostname & protocol for your site, e.g. http://example.com
 remote_theme: pages-themes/minimal
 logo: /assets/images/logo.png
