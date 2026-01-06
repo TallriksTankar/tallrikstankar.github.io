@@ -12,9 +12,8 @@ Bakom den här bloggen finns en 21-årig tjej som gillar mat i alla former. Att 
 Häng mä bestos friendos!
 
 # *Källarfranska med apelsinmarmelad 5/1-26*
-Inget slår väl doften av nybakta frallor?
-
-Den varma känslan av brödet i handen, smöret som bara smälter, och den där tuggan?Svårslagen. 
+Inget slår väl doften av nybakta frallor?\
+Den varma känslan av brödet i handen, smöret som bara smälter, och den där tuggan\ Svårslagen. 
 
 Just nu är jag i en baka-bröd-bubbla. 
 
