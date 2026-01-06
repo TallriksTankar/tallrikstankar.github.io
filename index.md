@@ -13,7 +13,7 @@ Häng mä bestos friendos!
 
 # *Källarfranska med apelsinmarmelad 5/1-26*
 Inget slår väl doften av nybakta frallor?\
-Den varma känslan av brödet i handen, smöret som bara smälter, och den där tuggan\ Svårslagen. 
+Den varma känslan av brödet i handen, smöret som bara smälter, och den där tuggan.\ Svårslagen. 
 
 Just nu är jag i en baka-bröd-bubbla. 
 
