@@ -5,7 +5,7 @@ title: TallriksTankar
 
 # Välkommen!
 
-Jag heter Nazek och står bakom den här matbloggen🥰
+Tja hej salam. Här har vi en glad tjeja som står bakom den här matbloggen🥰
 
 Jag är en självutnämnd hobbykock/bagare som tycker om att laga mat och baka hemma, främst med fokus på enkla recept som fungerar i vardagen. Inga krav på perfektion eller avancerade tekniker, här finns rum för misstag. 
 
