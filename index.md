@@ -5,8 +5,8 @@ title: TallriksTankar
 
 # Välkommen!
 
-Hej på dig och välkommen till min matdagbok!
-Jag gillar att laga mat och baka, så här kommer du ta del av det jag gjort, i min egen takt när jag känner för det.// Inget fancy, bara sånt jag gillar. 
+Hej på dig och välkommen till min matdagbok!  
+Jag gillar att laga mat och baka, så här kommer du ta del av det jag gjort, i min egen takt när jag känner för det.   Inget fancy, bara sånt jag gillar. 
 
 Häng mä bestos friendos!
 
@@ -17,12 +17,51 @@ Den varma känslan av brödet i handen, smöret som bara smälter, och den där 
 Svårslagen. 
 
 Just nu är jag i en baka-bröd-bubbla.\
-Det är något vädigt tryggt med bröd. Det behöver inte vara märkvärdigt för att vara gott. Det är så kravlöst.\
+Det är något väldigt tryggt med bröd. Det behöver inte vara märkvärdigt för att vara gott. Det är så kravlöst.\
 Man får ha vad man vill på sin macka och den blir alltid god, inga regler WHAT SO EVER. Det är väl därför det känns så tryggt? 
 
-Hur som haver, som rubriken lyder bakade jag källarfranskar och hade på apelsinmarmelad. Något som uppskattades väldigt mycket av mig, men även min 24/7 hungriga pojkvän.\
+Hur som haver, som rubriken lyder bakade jag källarfranskar och hade på apelsinmarmelad. Något som uppskattades väldigt mycket av mig, men även min konstant hungriga pojkvän.\
 Enkelt var det också. Värm mjölk fingervarmt, ha i jäst, rör ner mjöl, knåda till deg, jäsa, forma, jäsa och tjoff in i ugngen och voila!!!! Bröd.
 
 Fun fact: bröd var en gång i tiden så värdefullt att den kunde användas som valuta
 
 ![franska](assets/images/kallarfranska.png){: width="250" }
+
+
+# *Banankaka med brynt smör 16/1-26*
+Om det är något jag är duktig på att göra så är det att göra en banankaka. Det var en av de första bakelserna jag bakade 2016, när jag först blev intresserad av matlagning och bakning.\
+Och det är en återkommande favorit som jag bakar flera gånger per år. \
+Däremot har jag gjort om receptet lite och har haft i brynt smör för en mer karamelliserad smak och det blev såååå gott! Det blev en så bra kombo av brynt smör, bananer och choklad. Mums. Måste baka det här omedelbums.
+
+Fun fact: under den stora depressionen ville inte hemmafruar kasta övermogna bananer och därifrån fick vi bananbrödet
+
+
+# *Blåbärskaka med havresmul 31/3-26*
+Oj oj oj vad god den här kakan blev! Saftig, fluffig och så lite crunch från smultoppingen. Mumsfilibabba.\
+Jag tror att det är Hemköp som har såna blåbärsmuffins med havresmul på och det är så gott, den här kakan blev inte lika god men den var inte långt ifrån. Däremot tycker jag det är svårt med havresmul för den blir alltid ljus, den får liksom ingen färg så kakan såg lite blek ut. 
+
+Fun fact: blåbärskaka är en klassisk norrländsk efterrätt som bakas med deras färska blåbär under sommaren
+
+
+# * Hemgjorda köttbullar med potatismos, brunsås, lingonsylt och pressgurka 10/2-26*
+Det här är min absoluta favorit inom husmanskosten. Det är så otroligt gott och man tröttnar aldrig på det. Jag och min pojkvän brukar göra det här till matlådor och det är ju lika gott varje dag.\ 
+Eller, jag tar tillbaks det jag sa, efter dag 5 börjar man kanske tröttna lite men den slinker fortfarande ner!
+Det finns ju flera sätt att göra köttbullar på men jag brukar göra såhär:\
+* Blandfärs
+* 1 finhackad gul lök
+* En skvätt grädde
+* 1 ägg
+* Ströbröd
+* Salt och peppar
+Såg däremot någon som hade i stekt lök och som efter rullning hade i köttbullarna i ungnen och sedan stekte dem, så det tänkte jag prova nästa gång. Till potatismosen då, där brukar jag ha kvar skalet på potatisen för jag tycker det blir mer potatissmak (jag orkar inte skala 1 kg potatis). Nej, men det blir faktiskt mer smak! Sen har jag i mjölk och rikligt med salt och vitpeppar. Så jävla gött!! Brunsåsen gör jag av skyn kvar i stekpannan från köttbullarna. 
+
+Fun fact: innan benämningen köttbullar tog storm i mitten av 1800-talet så kallades de för frikadeller, skillnaden på dessa två var att frikadeller oftas kokas i buljong eller sås medan köttbullar steks. 
+
+# * Scones 1/3-26*
+Jag har aldrig varit en person som tagit mig nöjet att kolla på sport på tv:n, men enda sedan jag blev tillsammans med min pojkvän så har det blivit en grej, eller ja mer under de större sportevenemangen. Exempelvis vinter-OS, vasaloppet och sommar-OS. Jag minns när jag vaknade upp hos honom den 1a mars, tidigt i vårat förhållande, av att han säger, "Vi måste upp för snart börjar Vasaloppet". I stunden så tänkte jag "Varför ska jag kolla på Vasaloppet?".\
+Och enda sedan dess så ser jag fram emot det, ja mest för att jag sitter hemma i värmen och äter en god brunch och tittar på stackarna som kämpar i flera timmar. Jag brukar preppa en god brunch, så i år hade vi ägg, bacon, prästost (favoritosten), sylt och mina goda hemgjorda scones. Det satt bannemej fint!
+
+Fun fact: 2018 bildades det en grupp på Facebook där flera användare diskuterade om scones kategoriserades som bröd eller kaka. Scones knådas ju inte på samma sätt som man gör med bröd, och det är inte heller en smet som man gör med med kakor. Vad tycker du scones är?
+
+# *Kyckling med cashewnötter och ris 12/6-26"
+Long time no see! Jag och gubben far till Japan i två veckor, mitt livs bästa resa! 
