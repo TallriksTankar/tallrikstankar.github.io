@@ -27,7 +27,6 @@ Fun fact: bröd var en gång i tiden så värdefullt att den kunde användas som
 
 # *Banankaka med brynt smör 16/1-26*
 Om det är något jag är duktig på att göra så är det att göra en banankaka. Det var en av de första bakelserna jag bakade 2016, när jag först blev intresserad av matlagning och bakning.\
-
 Och det är en återkommande favorit som jag bakar flera gånger per år.\
 Däremot har jag gjort om receptet lite och har haft i brynt smör för en mer karamelliserad smak och det blev såååå gott! Det blev en så bra kombo av brynt smör, bananer och choklad. Mums. Måste baka det här omedelbums.
 
@@ -36,16 +35,13 @@ Fun fact: under den stora depressionen ville inte hemmafruar kasta övermogna ba
 
 # *Blåbärskaka med havresmul 31/3-26*
 Oj oj oj vad god den här kakan blev! Saftig, fluffig och så lite crunch från smultoppingen. Mumsfilibabba.\
-
 Jag tror att det är Hemköp som har såna blåbärsmuffins med havresmul på och det är så gott, den här kakan blev inte lika god men den var inte långt ifrån. Däremot tycker jag det är svårt med havresmul för den blir alltid ljus, den får liksom ingen färg så kakan såg lite blek ut. 
 
 Fun fact: blåbärskaka är en klassisk norrländsk efterrätt som bakas med deras färska blåbär under sommaren
 
 
 # *Hemgjorda köttbullar med potatismos, brunsås, lingonsylt och pressgurka 10/2-26*
-Det här är min absoluta favorit inom husmanskosten. Det är så otroligt gott och man tröttnar aldrig på det. Jag och min pojkvän brukar göra det här till matlådor och det är ju lika gott varje dag.\
-
-Eller, jag tar tillbaks det jag sa, efter dag 5 börjar man kanske tröttna lite men den slinker fortfarande ner!
+Det här är min absoluta favorit inom husmanskosten. Det är så otroligt gott och man tröttnar aldrig på det. Jag och min pojkvän brukar göra det här till matlådor och det är ju lika gott varje dag.\ Eller, jag tar tillbaks det jag sa, efter dag 5 börjar man kanske tröttna lite men den slinker fortfarande ner!
 Det finns ju flera sätt att göra köttbullar på men jag brukar göra såhär\
 * Blandfärs
 * 1 finhackad gul lök
