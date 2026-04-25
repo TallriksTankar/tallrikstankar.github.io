@@ -43,8 +43,7 @@ Fun fact: blåbärskaka är en klassisk norrländsk efterrätt som bakas med der
 # *Hemgjorda köttbullar med potatismos, brunsås, lingonsylt och pressgurka 10/2-26*
 Det här är min absoluta favorit inom husmanskosten. Det är så otroligt gott och man tröttnar aldrig på det. Jag och min pojkvän brukar göra det här till matlådor och det är ju lika gott varje dag.\
 Eller, jag tar tillbaks det jag sa, efter dag 5 börjar man kanske tröttna lite men den slinker fortfarande ner!
-Det finns ju flera sätt att göra köttbullar på men jag brukar göra såhär\
-* Blandfärs
+Det finns ju flera sätt att göra köttbullar på men jag brukar göra såhär\* Blandfärs
 * 1 finhackad gul lök
 * En skvätt grädde
 * 1 ägg
