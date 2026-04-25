@@ -69,3 +69,5 @@ Fun fact: kyckling med cashewnötter är tydligen är kinesisk och amerikansk ma
 
 # *Baskisk cheesecake med chokladganache och hallon 18/4-26*
 När vi var i Japan så hittade vi ett fik när vi var på väg till Gotokuji Templet, där vi tog en baskisk cheesecake och en äggpudding (?). Cheesecaken var väldigt god, äggpuddingen var märklig. Tänk dig pannacotta i smak av ägg, väldigt märkligt var det iallafall. Enda sedan denna bit cheesecake har gubben fastnat för den och därför bestämde jag mig för att baka den på hans födelsedag. Och oj vad gott det blev. Det som är så skönt med den här cheesecaken är att utseendet spelar ingen roll, för den ska se bränd ut. Det här kommer jag definitivt baka igen!
+
+Fun fact: baskisk cheesecake framställdes på slutet av 80-talet i San Sebastián, därav sitt andra namn Cheesecake San Sebastián. Jag trodde att den hade funnits längre än så, typ sedan tidigt 1900-tal.
