@@ -28,7 +28,7 @@ Fun fact: bröd var en gång i tiden så värdefullt att den kunde användas som
 # *Banankaka med brynt smör 16/1-26*
 Om det är något jag är duktig på att göra så är det att göra en banankaka. Det var en av de första bakelserna jag bakade 2016, när jag först blev intresserad av matlagning och bakning.\
 
-Och det är en återkommande favorit som jag bakar flera gånger per år. \
+Och det är en återkommande favorit som jag bakar flera gånger per år.\
 Däremot har jag gjort om receptet lite och har haft i brynt smör för en mer karamelliserad smak och det blev såååå gott! Det blev en så bra kombo av brynt smör, bananer och choklad. Mums. Måste baka det här omedelbums.
 
 Fun fact: under den stora depressionen ville inte hemmafruar kasta övermogna bananer och därifrån fick vi bananbrödet
@@ -43,7 +43,8 @@ Fun fact: blåbärskaka är en klassisk norrländsk efterrätt som bakas med der
 
 
 # *Hemgjorda köttbullar med potatismos, brunsås, lingonsylt och pressgurka 10/2-26*
-Det här är min absoluta favorit inom husmanskosten. Det är så otroligt gott och man tröttnar aldrig på det. Jag och min pojkvän brukar göra det här till matlådor och det är ju lika gott varje dag.\ 
+Det här är min absoluta favorit inom husmanskosten. Det är så otroligt gott och man tröttnar aldrig på det. Jag och min pojkvän brukar göra det här till matlådor och det är ju lika gott varje dag.\
+
 Eller, jag tar tillbaks det jag sa, efter dag 5 börjar man kanske tröttna lite men den slinker fortfarande ner!
 Det finns ju flera sätt att göra köttbullar på men jag brukar göra såhär\
 * Blandfärs
