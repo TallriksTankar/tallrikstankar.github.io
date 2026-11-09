@@ -5,10 +5,29 @@ title: TallriksTankar
 
 # Välkommen!
 
-Hej på dig och välkommen till min matdagbok!  
-Jag gillar att laga mat och baka, så här kommer du ta del av det jag gjort, i min egen takt när jag känner för det.   Inget fancy, bara sånt jag gillar. 
+Här är min samling av sånt jag lagar, bakar och tycker är gott. Inga ambitioner om att vara proffsig, bara kul att ha allt dokumenterat på ett ställe. 
 
-Häng mä bestos friendos!
+
+# Fika på Ritorno
+Häromdagen blev det ett fikabesök på gamla hederliga Ritorno, numera ett standardfik för oss. Vi har varit här flera gånger och aldrig blivit besvikna. 
+
+Den här gången blev det en surdegsbaguette med brie och salami för min del, medan han tog en croissant med kallrökt lax och avokado. Till efterrätt blev det prinsesstårta för mig och en baskisk cheesecake för honom
+
+Alltid lika gott, och jag står fast vid att Ritorno har stans godaste prinsesstårta. Bara den är värt ett besök. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # *Källarfranska med apelsinmarmelad 5/1-26*
 Inget slår väl doften av nybakta frallor?
