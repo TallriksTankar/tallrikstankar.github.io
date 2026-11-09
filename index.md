@@ -16,13 +16,21 @@ Den här gången blev det en surdegsbaguette med brie och salami för min del, m
 Alltid lika gott, och jag står fast vid att Ritorno har stans godaste prinsesstårta. Bara den är värt ett besök. 
 
 
+# Hembakad prinsesstårta, typ
+
+Den här gången blev det en hemmagjord prinsesstårta till killen och hans kompisar. Det är alltid kul att ha en anledning att baka något lite extra, och prinsesstårta är ju aldrig fel. Men den här gången skippade jag marsipanen och gjorde en slät mascarponekräm. Fick även till ett ansikte av en roblox-karaktär som dekoration. Inte den mest traditionella prinsesstårtan, men det var inte tanken heller. 
 
 
+# Mätta och belåtna på Pelikan
+
+Har velat besöka Pelikan länge och nu blev det äntligen av! Vi började med deras matjetsill från Norröna tillsammans med ett varsitt glas Cava till förrätt, smakrikt var det. Till varmrätt tog jag deras klassiska köttbullar med mos medan systern tog deras rimmade fjordlax med dillstuvad potatis. Oj, oj, oj vad gott det var! Och så generösa portioner. Gillade den gamla charmiga inredningen och personalen var väldigt trevliga. Helt klart värt väntan!
 
 
+# Kvalitetstid med kolhydrater
 
+Det blev en pizzadejt med min kille på Deglabbet, ännu en restaurang jag velat prova länge. Jag tog en pizza med pesto, ruccola och tomater, medan han körde på en pepperonipizza fast med rökt oxkorv istället. Stans bästa pizza enligt mig, och den godaste peston jag ätit! Riktigt bra pizzadeg, vilket man borde ha förväntat sig med tanke på namnet. 
 
-
+# Kyckling med krisp och sås
 
 
 
